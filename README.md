@@ -1,4 +1,4 @@
- Hi, I'm Rio 👋
+Hi, I'm Rio 👋
 🔭 I'm currently studying at FPT Polytechnic
 💬 Ask me about every thing
 👀 I'm love listening to music
